@@ -10,6 +10,8 @@
 
 [Peebles High School](http://peebleshighschool.org.uk) 
 
+ ## Research Interests
  
+ Paleoclimate, ecology and hominin evolution!
  
  
